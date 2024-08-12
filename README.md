@@ -5,6 +5,7 @@
 - 📫 reach me by email: muzammilsyed640@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact:into web3 and blockchain since 2020
+- 💵 Earned 1lakh from crypto
 
 <!---
 Enshrouded/Enshrouded is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
