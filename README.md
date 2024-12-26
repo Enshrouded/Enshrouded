@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on new projects and ideas
 - 📫 reach me by email: muzammilsyed640@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact:into web3 and blockchain since 2020
 - 💵 Earned 1lakh from crypto
 
